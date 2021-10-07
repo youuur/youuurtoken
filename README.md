@@ -1,2 +1,2 @@
 # youuurtoken
-Smart contact
+Your Community is created basing upon online gaming world focusing on equality.ห Including customizable characters that can be created as you wished. There will be a community and NFT market to connect people and society together. Everyone is equally involved in being able to take part and share discussion in the community. By trading, we use your token for transactions. The emphasis of our game is that individuals are allowed to create their very own avatar they want to be in the game and can also have live conversation with friends in the community. Additionally, the new community also able to trade on market of NFT.
